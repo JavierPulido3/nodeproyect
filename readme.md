@@ -1,4 +1,3 @@
-# Me comi una salchipapa
-me comi una salchipapa
+# Puto el q lo lea
 puto el que lo lea
-**y una diarrea a mi me dio**
+**Puto el q lo lea**
