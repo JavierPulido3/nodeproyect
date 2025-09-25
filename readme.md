@@ -1,4 +1,4 @@
-# JAVIER PAZ-IVO
+# JAVIER PAZ-IFICO
 
 javier peligrosiño
 
@@ -10,5 +10,7 @@ javier peligrosiño
 ## z
 ## |
 ## I
-## V
+## F
+## I
+## C
 ## O
