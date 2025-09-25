@@ -1,4 +1,7 @@
-# Este es mi titulo
-Esta es la descripcion
+# JAVIER PAZ-IVO
 
-**en negrita**
+javier peligrosiño
+
+**javier ronalhino**
+
+# CLASH ROYALE
