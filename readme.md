@@ -1,3 +1,3 @@
-#Javier pasifico 
+#Javier pacifico 
 javier peligrosiño
-**javier pedofilico*
+**javier ronalhino**
